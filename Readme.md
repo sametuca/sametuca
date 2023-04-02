@@ -1,5 +1,5 @@
 
-![Logo](https://i.ibb.co/7G82txw/scriptype.gif)
+![Logo](https://i.ibb.co/THpmMDV/scriptype.gif)
 
 
     

@@ -1,5 +1,5 @@
 
-![Logo](https://ibb.co/Bgdq2HX)
+![Logo](https://i.ibb.co/THpmMDV/scriptype.gif)
 
     
 Hi 👋 My name is Samet
